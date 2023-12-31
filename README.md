@@ -1,3 +1,4 @@
+![Coding GIF](https://64.media.tumblr.com/b919e79b421fa0a1ab793d4d49437e03/718636e2473efff4-c3/s1280x1920/62462f85e5ecbfbcf840ecb35a88190e71ed73de.gif)
 # 👋 Hi, I'm Sahar 👨‍💻
 
 ## 🚀 About Me
